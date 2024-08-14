@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **khushisharma1703@gmail.com**
 
-- ⚡ Fun fact **I am Funny**
+- ⚡ Fun fact **Emotionless**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
